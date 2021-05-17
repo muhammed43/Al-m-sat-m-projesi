@@ -1,1 +1,1 @@
-# Al-m-sat-m-projesi
+# Alim Satim Projesi
